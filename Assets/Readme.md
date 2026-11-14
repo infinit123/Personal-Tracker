@@ -1,0 +1,1 @@
+aici sunt regasite iconitele
